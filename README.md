@@ -1,1 +1,1 @@
-Hot fix was nice
+Hot fix was nice and cool
